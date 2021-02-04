@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with quant 
 - 💬 Ask me about post-capitalism
 - 📫 How to reach me: jacob.rosette@gmail.com
-- ⚡ Fun fact: I cooked in NYC kitchens for over 20 years!
+- ⚡ Fun fact: I have cooked in NYC kitchens for over 20 years!
 -->
