@@ -2,6 +2,7 @@
 
 - 🔭 I’m currently working on a MS in Applied Social Research
 - 🌱 I’m currently learning R
+- 📚 I'm currently reading 100 things
 - 👯 I’m looking to collaborate on food systems research
 - 🤔 I’m looking for help with GIS modeling
 - 💬 Ask me about post-capitalist praxis
